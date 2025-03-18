@@ -1,6 +1,6 @@
 ◜ 𝔱ouya  ╱  𝔡abi  ♱
 
-https://rentry.co/touyaoi╰╮𝔣iction𝔨in ◞
+"𝔱he past never dies!"╰╮𝔣iction𝔨in ◞
 
 ![alt](https://i.pinimg.com/originals/88/ab/44/88ab4414c73d4b974a4a7c15d7ad3e38.gif)
 <!---
