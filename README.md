@@ -1,8 +1,8 @@
-dabi or touya.
+𝔡abi or 𝔱ouya.
 
-bisexual / demiaroace, guy.
+bisexual ╱ demiaroace, guy.
 
-touya todoroki / michael afton fictionkin.
+touya todoroki fictionkin.
 
 ![alt](https://i.pinimg.com/originals/88/ab/44/88ab4414c73d4b974a4a7c15d7ad3e38.gif)
 <!---
