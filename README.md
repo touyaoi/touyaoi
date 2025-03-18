@@ -1,6 +1,6 @@
-◜ 𝔱ouya   ╱    𝔡abi  ♱
+touya or dabi, fictionkin. minor, adults dniuid.
 
-"𝔱he past never dies!" ╰╮ 𝔣iction𝔨in ◞
+"the past never dies! you reap what you sow."
 
 ![alt](https://img1.picmix.com/output/pic/thumb/2/2/4/7/11557422_aa669.gif)
 <!---
