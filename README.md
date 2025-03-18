@@ -2,7 +2,7 @@
 
 "𝔱he past never dies!" ╰╮ 𝔣iction𝔨in ◞
 
-![alt](https://i.gifer.com/origin/a4/a4fb1ab272da13569b081edaea1b2586_w200.gif)
+![alt](https://i.pinimg.com/originals/88/ab/44/88ab4414c73d4b974a4a7c15d7ad3e38.gif)
 <!---
 touyaoi/touyaoi is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
