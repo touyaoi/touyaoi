@@ -1,8 +1,6 @@
-𝔡abi or 𝔱ouya.
+◜ 𝔱ouya  ╱  𝔡abi  ♱
 
-bisexual ╱ demiaroace, guy.
-
-touya todoroki fictionkin.
+__02__𓈒__19__𓈒__25__╰╮𝔣iction𝔨in ◞
 
 ![alt](https://i.pinimg.com/originals/88/ab/44/88ab4414c73d4b974a4a7c15d7ad3e38.gif)
 <!---
