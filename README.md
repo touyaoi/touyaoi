@@ -1,4 +1,4 @@
-◜ 𝔱ouya  ╱   𝔡abi  ♱
+◜ 𝔱ouya   ╱    𝔡abi  ♱
 
 "𝔱he past never dies!" ╰╮ 𝔣iction𝔨in ◞
 
