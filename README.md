@@ -1,1 +1,1 @@
-my discord is touyaoi
+send me a drawing or song recommendations
