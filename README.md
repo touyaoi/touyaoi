@@ -1,1 +1,1 @@
-i quit ponytown.
+my discord is touyaoi
